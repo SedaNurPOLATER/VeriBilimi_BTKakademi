@@ -1,0 +1,1 @@
+# VeriBilimi_BTKakademi
